@@ -1,5 +1,5 @@
 ### Terms of Service
-If you find anything that can be abused to harm users or anything immediately report it to me on Discord by adding me  altraz#4874 or joining the support server https://discord.gg/Ca6XpTRQaR.
+If you find anything that can be abused to harm users or anything immediately report it to me on Discord by adding me Baltraz#4874 or joining the support server https://discord.gg/Ca6XpTRQaR.
 
 
 ### Privacy Policy
